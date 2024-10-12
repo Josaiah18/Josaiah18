@@ -1,0 +1,6 @@
+- 👋 Hi, I’m spooder man
+- 👀 I’m interested in programing
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on python
+- 📫 How to reach me emaail me @ josaiah.graham@timothyministry.org
+- ⚡ Fun fact: i have two dogs and ilove baseball
